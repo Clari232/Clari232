@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Clari232
 - 👀 I’m interested in Linux/DevOps/Ubuntu/RedHat
 - 🌱 I’m currently learning Linux and DevOps
-- 📫 How to reach me clarissarodrigues232@gmail.com
+- 📫 How to reach me dreamybutterfly232@gmail.com
 - 😄 Pronouns: Ela/Dela .. She/her
 - ⚡ Fun fact: I'm trans 😄😄
 
